@@ -9,3 +9,7 @@
 | 2025-10-03  |       |       |       |
 | 2025-10-04  |       |       |       |
 | 2025-10-05  |       |       |       |
+
+---
+
+> 💤 *Pamiętaj: czym mniej wiesz, tym lepiej śpisz.*
